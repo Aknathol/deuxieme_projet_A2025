@@ -5,5 +5,7 @@ On tente d'encrer la procédure
 
 2- As-tu réussi ?
 Ça commence bien
+J'ai presque réussi a tout faire de mémoire
 
 3- Si non, recommence ! Compris ?
+oui, je vais réessayer demain :p
